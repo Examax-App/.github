@@ -158,8 +158,7 @@ Contact
 
 For general inquiries:
 
-Website:
-https://examax.app
+contact@examax.app
 
 ⸻
 
